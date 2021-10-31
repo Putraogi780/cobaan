@@ -1,2 +1,0 @@
-# cobaan
-20FqyJVz5tP4MTTxJIwxMwOOHN4_64bvi62c4hdiHQUzVMcKy
